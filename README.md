@@ -9,7 +9,7 @@ O joga busca compartilhar curiosidades sobre o universo simulando a visão do te
 - João Pedro Sales
 - Lucas Cotrim (lucascotrim3@hotmail.com)
 - Luis Fernando
-- Matheus Pignatti (mateuspignatti3@gmail.com)
+- Mateus Pignatti (mateuspignatti3@gmail.com)
 - Renato Kenji Aguena (aguena.kenji@gmail.com)
 - Rodolfo Gouveia (ro_lima.g@hotmail.com)
 
